@@ -3,3 +3,5 @@ Hello!! Please look at my guns.lol profile, it has almost all my socials! ~ 💜
 Thingsbook ~
 - https://www.thbk.me/@randommistyy
 
+  recognized by @marvelous-pt as the agatha harkness of ponytown!
+
