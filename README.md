@@ -5,5 +5,5 @@ Thingsbook ~
 
 - im shy and may not be super expressive or go up to you unless i know you well or you have a skin of a character i like - please don't be offended! i love meeting new people : }
 
-  recognized by @marvelous-pt as the agatha harkness of ponytown!
+  recognized by @marvelous-pt and @THE-TEMPIST as the agatha harkness of ponytown!
 
