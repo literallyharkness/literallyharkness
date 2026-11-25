@@ -3,6 +3,8 @@ hello!! Please look at my guns.lol profile, it has almost all my socials! ~ 💜
 Thingsbook ~
 - https://www.thbk.me/@randommistyy
 
+- DNI list : https://www.dropbox.com/scl/fi/ta5txcuxoy0y6z5mvh00g/DNI-LIST.paper?rlkey=0dr9o1murbq2iluppo2oe5jtq&st=i5ssf6jt&dl=0
+
 - any tips on how to customize my github are appreciated!!
 
 - 15, she/him, demisexual lesbian!
